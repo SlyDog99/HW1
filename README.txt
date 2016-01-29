@@ -1,1 +1,0 @@
-Sylvester Podobinski my favorite team is the Chicago Cubs.
